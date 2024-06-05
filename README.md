@@ -5,5 +5,4 @@ Estudo na escola [@Nicota] (https:\\www.instagram.com\escola.donanicota\)
 
 💌🌿🌷🧷🧸
 
-ℕ𝕒𝕞𝕖- [Vivi]
-𝔸𝕘𝕖- [16]
+ ⸜(｡˃ ᵕ ˂ )⸝♡ have a great day <3!! ~
